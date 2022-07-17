@@ -1,1 +1,0 @@
-# vcardy7bncn
